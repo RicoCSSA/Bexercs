@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @Bexercs
+- 👋 Hi, I’m @ricocssa
 - 👀 I’m interested in military, law enforcement, and firearms
-- 🌱 I’m currently learning Law enforcement 
+- 🌱 I’m currently Cybersecurity, coding, modding, 3d animaions
 - 💞️ I’m looking to collaborate on N/A
-- 📫 How to reach me Discord @Bexarcs
+- 📫 How to reach me Discord @ricocssa
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Furtue Federal bureau of Investigation agent
+- ⚡ Fun fact: Did you know that [secret] 
 
 <!---
 Bexercs/Bexercs is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
