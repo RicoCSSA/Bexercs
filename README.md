@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ricocssa
 - 👀 I’m interested in military, law enforcement, and firearms
-- 🌱 I’m currently Cybersecurity, coding, modding, 3d animaions
+- 🌱 I’m currently learning Cybersecurity, coding, modding, 3d animations
 - 💞️ I’m looking to collaborate on N/A
 - 📫 How to reach me Discord @ricocssa
 - 😄 Pronouns: He/Him
